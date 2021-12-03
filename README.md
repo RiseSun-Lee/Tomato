@@ -1,2 +1,2 @@
 # Tomato
-any want , any learning!
+any thinking , any learning!
